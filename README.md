@@ -2,7 +2,7 @@
 
 <p align="center"> ════────✦︎────════
 
-<p align="center"> </a> <a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> <a href="https://songmachine.atabook.org/" target="_blank">新book</a> 
+<p align="center"> </a> <a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> <a href=https://soukeyez.atabook.org/ target="_blank">新book</a> 
 
 <p align="center"> <p align="center">
   <p align="center">
