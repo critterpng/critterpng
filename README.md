@@ -1,4 +1,8 @@
- <p align="center"> remember kids ; satan loves you 
+
+
+<p align="center"> 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=georgia&weight=5000&size=16&pause=1000&color=75857E&multiline=true&width=425&height=47&lines=remember+kids%2C+satan+loves+you+!+!+!+!)](https://git.io/typing-svg)
 
  <p align="center"> wip lmao 
 
