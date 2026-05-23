@@ -4,16 +4,26 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=georgia&weight=5000&size=16&pause=1000&color=75857E&multiline=true&width=425&height=47&lines=remember+kids%2C+satan+loves+you+!+!+!+!)](https://git.io/typing-svg)
 
+<p align="center">  
  <p align="center"> wip lmao 
 
-<p align="center"> ════────✦︎────════
+<p align="center"> ════────  ✦︎  ────════
 
-<p align="center"> </a> ㅤㅤ<a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> ㅤ❝ㅤㅤ<a href=https://soukeyez.atabook.org/ target="_blank">新book</a>       ㅤ  𓏽 ♡ॱ 
+<p align="center"><img src="https://media.discordapp.net/attachments/1200586867142299758/1507602633874079815/Untitled798_20260523003423.png?ex=6a127fdd&amp;is=6a112e5d&amp;hm=f666cf10c67b457e0ab0cd105ab0ea2bcccdb9805f83747ac2bf8ca399041985&amp;=&amp;format=webp&amp;quality=lossless"/>
+
+<p align="center"> </a> ㅤㅤ
+<a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> ㅤ❝ㅤㅤ<a href=https://soukeyez.atabook.org/ target="_blank">新book</a>       ㅤ  𓏽 ♡ॱ 
 
 <p align="center"> <p align="center">
+ 
+  
   <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=4d1fmgz089por2xfzwufwv5x8&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
+   
+   
+ 
+   
+   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=4d1fmgz089por2xfzwufwv5x8&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
   </a>
 </p>
 
