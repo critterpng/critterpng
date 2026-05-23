@@ -1,5 +1,5 @@
-remember kids ; satan loves you 
- 
+ <p align="center"> remember kids ; satan loves you 
+
  <p align="center"> wip lmao 
 
 <p align="center"> ════────✦︎────════
