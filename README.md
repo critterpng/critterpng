@@ -9,7 +9,7 @@
 <p align="center"> ﹒ㅤㅤ﹒  ㅤᥱthᥲᥒ ㅤㅤ ╱ ㅤㅤsou ⠀ ⠀ ⠀ ⠀ ⠀ ꫂ᭪ 𓂃  
 
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <p align="center"> 𓏺 𓏺 𓏺ㅤㅤ hvyㅤㅤ gorillazㅤㅤ fan  ㅤㅤ (..◜ᴗ◝..) ㅤㅤ ،،
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <p align="center"> 𓏺 𓏺 𓏺ㅤㅤ hvyㅤㅤ gorillazㅤㅤ entheusiast  ㅤㅤ (..◜ᴗ◝..) ㅤㅤ ،،
 ㅤㅤ<img src="https://biscuit.crd.co/assets/images/gallery03/131a7dfb.gif?v=edffcd2f" alt="Untitled"/>  
  
 <p align="center"> <img src="https://media.discordapp.net/attachments/1200586867142299758/1507601939150536804/Untitled797_20260523003134.png?ex=6a1327f8&amp;is=6a11d678&amp;hm=102af4b0e0b58a4770e790ae5658dd7275f651abd8dc82896cfff7971a25f658&amp;=&amp;format=webp&amp;quality=lossless"/>
