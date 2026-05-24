@@ -4,28 +4,32 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=georgia&weight=5000&size=16&pause=1000&color=75857E&multiline=true&width=425&height=47&lines=remember+kids%2C+satan+loves+you+!+!+!+!)](https://git.io/typing-svg)
 
-<p align="center">  
- <p align="center"> wip lmao 
+
+
+<p align="center"> ﹒ㅤㅤ﹒  ㅤᥱthᥲᥒ ㅤㅤ ╱ ㅤㅤsou ⠀ ⠀ ⠀ ⠀ ⠀ ꫂ᭪ 𓂃 
+
+
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <p align="center">  hvy gorillaz fan   (♡ˊ͈ ꒳ ˋ͈)  ،،
+ ⠀ <p align="center"> music geek 
+
+<p align="center"> <img src="https://cdn.discordapp.com/attachments/1200586867142299758/1507897666766508272/Untitled803_20260523200627.png?ex=6a1392a3&amp;is=6a124123&amp;hm=5086bf31d17a7c6698552ace8c4033fcf0b1401abc94a8b1f3d0a45a3034bc70"/>
+
+
+
+<p align="center"> i can be extremely slow at times; iwc Ꮺ
+
+<p align="center"> pursuer & blot kin
 
 <p align="center"> ════────  ✦︎  ────════
 
-<p align="center"><img src="https://media.discordapp.net/attachments/1200586867142299758/1507602633874079815/Untitled798_20260523003423.png?ex=6a127fdd&amp;is=6a112e5d&amp;hm=f666cf10c67b457e0ab0cd105ab0ea2bcccdb9805f83747ac2bf8ca399041985&amp;=&amp;format=webp&amp;quality=lossless"/>
-
-<p align="center"> </a> ㅤㅤ
-<a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> ㅤ❝ㅤㅤ<a href=https://soukeyez.atabook.org/ target="_blank">新book</a>       ㅤ  𓏽 ♡ॱ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> ㅤㅤ❝ㅤㅤ<a href=https://soukeyez.atabook.org/ target="_blank">新book</a>       ㅤ  𓏽 ♡ॱ 
 
 <p align="center"> <p align="center">
  
   
-  <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-   
-   
  
-   
-   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=4d1fmgz089por2xfzwufwv5x8&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
-  </a>
-</p>
+
+
 
 
 <!--
