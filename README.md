@@ -16,17 +16,14 @@
 
 
 
-<p align="center"> i ㅤcan ㅤbe ㅤextremely ㅤslowㅤ at ㅤtimesㅤㅤ;ㅤ be patient with me ㅤ!        ≽(•⩊ •マ≼
-
-<p align="center"> hugeㅤㅤpursuerㅤ ㅤ& ㅤblotㅤㅤ kinnie  ㅤㅤㅤ  ⏖ 
+<p align="center"> i ㅤcan ㅤbe ㅤextremely ㅤslowㅤ at ㅤtimesㅤㅤ;ㅤ be patient with me ㅤㅤ! ㅤㅤ ≽(•⩊ •マ≼ <p align="center">hugeㅤㅤpursuerㅤ ㅤ& ㅤblotㅤㅤ kinnie  ㅤㅤㅤ  ⏖ 
 
 
-
-<p align="center"> <img src="https://64.media.tumblr.com/8b25aa0fa38dd1a9ba8ee3500326e1da/4b7ff5f547f3d60e-0d/s100x200/1ffb31afd6a25c21b3a86a31e82947e0cbf32b28.png" alt="image"/> 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"> <img src="https://64.media.tumblr.com/8b25aa0fa38dd1a9ba8ee3500326e1da/4b7ff5f547f3d60e-0d/s100x200/1ffb31afd6a25c21b3a86a31e82947e0cbf32b28.png" alt="image"/> 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ<p align="center">ㅤㅤㅤ<p align="center">◜ㅤㅤ𓂃𓈒ㅤ<a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> ㅤㅤ❝ㅤㅤ<a href=https://soukeyez.atabook.org/ target="_blank">新book</a>       ㅤ  𓏽 ♡ॱ 
 
-<p align="center"> <p align="center">
+<p align="center"> 
  
   
  
