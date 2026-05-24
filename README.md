@@ -12,7 +12,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <p align="center">  hvy gorillaz fan   (♡ˊ͈ ꒳ ˋ͈)  ،،
  ⠀ <p align="center"> music geek 
 
-<p align="center"> <img src="https://cdn.discordapp.com/attachments/1200586867142299758/1507897666766508272/Untitled803_20260523200627.png?ex=6a1392a3&amp;is=6a124123&amp;hm=5086bf31d17a7c6698552ace8c4033fcf0b1401abc94a8b1f3d0a45a3034bc70"/>
+<p align="center"> <img src="https://media.discordapp.net/attachments/1200586867142299758/1507601939150536804/Untitled797_20260523003134.png?ex=6a1327f8&amp;is=6a11d678&amp;hm=102af4b0e0b58a4770e790ae5658dd7275f651abd8dc82896cfff7971a25f658&amp;=&amp;format=webp&amp;quality=lossless"/>
 
 
 
