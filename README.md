@@ -13,7 +13,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <p align="center"> $\color{#545351}{𓏺 𓏺 𓏺}$ㅤㅤ hvyㅤㅤ gorillazㅤㅤ entheusiast  ㅤㅤ $\color{#888660}{(..◜ᴗ◝..) }$ ㅤㅤ $\color{#D1D676}{،،}$
 ㅤㅤ<img src="https://biscuit.crd.co/assets/images/gallery03/131a7dfb.gif?v=edffcd2f" alt="Untitled"/>  
  
-<p align="center"> <img src="https://media.discordapp.net/attachments/1200586867142299758/1507601939150536804/Untitled797_20260523003134.png?ex=6a2056f8&amp;is=6a1f0578&amp;hm=e4d8d72693a0b4d932cb36660c472db9f7dafb09304609d1d0d80d4391e88aab&amp;=&amp;format=webp&amp;quality=lossless"/><img width="736" height="557" alt="image" src="https://github.com/user-attachments/assets/23257da0-cb91-4e4c-8d6f-6cf9766f1fbb" />
+<p align="center"> <img src="https://media.discordapp.net/attachments/1200586867142299758/1507601939150536804/Untitled797_20260523003134.png?ex=6a2056f8&amp;is=6a1f0578&amp;hm=e4d8d72693a0b4d932cb36660c472db9f7dafb09304609d1d0d80d4391e88aab&amp;=&amp;format=webp&amp;quality=lossless"/>
 
 
 
