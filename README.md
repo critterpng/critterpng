@@ -13,7 +13,10 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <p align="center"> $\color{#545351}{𓏺 𓏺 𓏺}$ㅤㅤ hvyㅤㅤ gorillazㅤㅤ entheusiast  ㅤㅤ $\color{#888660}{(..◜ᴗ◝..) }$ ㅤㅤ $\color{#D1D676}{،،}$
 ㅤㅤ<img src="https://biscuit.crd.co/assets/images/gallery03/131a7dfb.gif?v=edffcd2f" alt="Untitled"/>  
  
-<p align="center"> <img width="736" height="557" src="https://github.com/user-attachments/assets/86da8f4d-d745-451c-8c16-aa2f479e8607" />
+<p align="center"> <img src="https://cdn.discordapp.com/attachments/1200586867142299758/1507601939150536804/Untitled797_20260523003134.png?ex=6a259cf8&amp;is=6a244b78&amp;hm=dd114a76d2f5a40c06d2e5a57269445a61cd3de9e449ad5dcdeaa2493be34cb8" alt="Image"/>
+
+
+
 
 
 <p align="center"> i ㅤcan ㅤbe ㅤextremely ㅤslowㅤ at ㅤtimesㅤㅤ;ㅤ be patient with me ㅤㅤ! ㅤㅤ ≽(•⩊ •マ≼ <p align="center">hugeㅤㅤpursuerㅤ ㅤ& ㅤblotㅤㅤ kinnie  ㅤㅤㅤ  ⏖ 
