@@ -13,7 +13,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <p align="center"> $\color{#545351}{𓏺 𓏺 𓏺}$ㅤㅤ hvyㅤㅤ gorillazㅤㅤ entheusiast  ㅤㅤ $\color{#888660}{(..◜ᴗ◝..) }$ ㅤㅤ $\color{#D1D676}{،،}$
 ㅤㅤ<img src="https://biscuit.crd.co/assets/images/gallery03/131a7dfb.gif?v=edffcd2f" alt="Untitled"/>  
  
-<p align="center"> <img width="692" height="510" alt="image" src="https://github.com/user-attachments/assets/fd2b84dd-10b6-41a4-b3fe-437a230efe17" />
+<p align="center"> <img src="https://github.com/user-attachments/assets/fd2b84dd-10b6-41a4-b3fe-437a230efe17" />
 
                     
 
