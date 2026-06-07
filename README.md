@@ -20,11 +20,7 @@
                     
 
 
-
-
-
-
-<p align="center"> $\color{#888660}{Ꭵ}$ ㅤcan ㅤbe  𝑒xtremely ㅤ$\color{#D1D676}{᥉loωㅤ}$ ㅤㅤ᥉loωㅤ at ㅤtimesㅤㅤ:ㅤ ㅤᑲe patient with me ㅤㅤ! ㅤㅤ $\color{#D1D676}{≽(•⩊ •マ≼}$ <p align="center">𝚑u𝚐eㅤㅤ⍴urs͟u͟e͟r͟ㅤ ㅤ&  ㅤㅤᑲlotㅤㅤ kinnie  ㅤㅤㅤ  ⏖ 
+<p align="center"> $\color{#888660}{Ꭵ}$ ㅤcan ㅤbe ㅤ 𝑒xtremely ㅤㅤ᥉loωㅤ ㅤat ㅤㅤtimesㅤㅤ:ㅤ ㅤᑲe patient with me ㅤㅤ! ㅤㅤ $\color{#D1D676}{≽(•⩊ •マ≼}$ <p align="center">𝚑u𝚐eㅤ ㅤ⍴urs͟u͟e͟r͟ㅤ ㅤ&  ㅤㅤᑲlotㅤㅤ kinnie  ㅤㅤㅤ  ⏖ 
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"> <img src="https://64.media.tumblr.com/8b25aa0fa38dd1a9ba8ee3500326e1da/4b7ff5f547f3d60e-0d/s100x200/1ffb31afd6a25c21b3a86a31e82947e0cbf32b28.png" alt="image"/> 
