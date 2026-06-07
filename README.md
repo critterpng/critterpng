@@ -7,10 +7,10 @@
 <p align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery47/e75194b9.png?v=3fc8f5cd" alt="Untitled"/>
 
 
-<p align="center"> $\color{#545351}{﹒ㅤㅤ﹒ㅤㅤ﹒}$  ㅤᥱthᥲᥒ ㅤㅤ $\color{#D1D676}{╱}$ ㅤㅤsou ⠀ ⠀ ⠀ ⠀ ⠀ $\color{#36303A}{ꫂ᭪ 𓂃}$  
+<p align="center"> $\color{#545351}{﹒ㅤㅤ﹒ㅤㅤ﹒}$  ㅤᥱthᥲᥒ ㅤㅤ $\color{#D1D676}{╱}$⠀⠀ 𑂘ou ⠀ ⠀ ⠀ ⠀ ⠀ $\color{#36303A}{ꫂ᭪ 𓂃}$  
 
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <p align="center"> $\color{#545351}{𓏺 𓏺 𓏺}$ㅤㅤ hvyㅤㅤ gorillazㅤㅤ entheusiast  ㅤㅤ $\color{#888660}{(..◜ᴗ◝..) }$ ㅤㅤ $\color{#D1D676}{،،}$
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ <p align="center"> $\color{#545351}{𓏺 𓏺 𓏺}$ㅤㅤ $\color{#888660}{hvy}$ㅤㅤ 𝚐orillαzㅤㅤ entheusiast  ㅤㅤ $\color{#888660}{(..◜ᴗ◝..) }$ ㅤㅤ $\color{#D1D676}{،،}$
 ㅤㅤ<img src="https://biscuit.crd.co/assets/images/gallery03/131a7dfb.gif?v=edffcd2f" alt="Untitled"/>  
  
 
@@ -23,7 +23,8 @@
 
 
 
-<p align="center"> i ㅤcan ㅤbe ㅤextremely ㅤslowㅤ at ㅤtimesㅤㅤ;ㅤ be patient with me ㅤㅤ! ㅤㅤ $\color{#D1D676}{≽(•⩊ •マ≼}$ <p align="center">hugeㅤㅤpursuerㅤ ㅤ&  ㅤㅤblotㅤㅤ kinnie  ㅤㅤㅤ  ⏖ 
+
+<p align="center"> $\color{#888660}{Ꭵ}$ ㅤcan ㅤbe  𝑒xtremely ㅤ$\color{#D1D676}{᥉loωㅤ}$ ㅤㅤ᥉loωㅤ at ㅤtimesㅤㅤ:ㅤ ㅤᑲe patient with me ㅤㅤ! ㅤㅤ $\color{#D1D676}{≽(•⩊ •マ≼}$ <p align="center">𝚑u𝚐eㅤㅤ⍴urs͟u͟e͟r͟ㅤ ㅤ&  ㅤㅤᑲlotㅤㅤ kinnie  ㅤㅤㅤ  ⏖ 
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"> <img src="https://64.media.tumblr.com/8b25aa0fa38dd1a9ba8ee3500326e1da/4b7ff5f547f3d60e-0d/s100x200/1ffb31afd6a25c21b3a86a31e82947e0cbf32b28.png" alt="image"/> 
