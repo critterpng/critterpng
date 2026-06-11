@@ -30,10 +30,10 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ<p align="center">ㅤㅤㅤ<p align="center">◜ㅤㅤ𓂃𓈒ㅤ<a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> ㅤㅤ❝ㅤㅤ<a href=https://soukeyez.atabook.org/ target="_blank">新book</a>       ㅤ  𓏽 ♡ॱ 
 
-<p align="center"> 
+<p align="center"> read me unfished ok?ok. 
 
 
-$\color{#374443}{≽(•⩊ •マ≼}$    $\color{#716b57}{≽(•⩊ •マ≼}$     $\color{#4f5a5d}{≽(•⩊ •マ≼}$ $\color{#4f5a5d}{⍴ursuer}$ 
+$\color{#374443}{≽(•⩊ •マ≼}$    $\color{#716b57}{≽(•⩊ •マ≼}$     $\color{#4f5a5d}{≽(•⩊ •マ≼}$ 
  
   
  
