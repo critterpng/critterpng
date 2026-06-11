@@ -21,9 +21,9 @@
 
  
   <p align="center"> $\color{#888660}{Ꭵ}$ ㅤcan ㅤbe ㅤ<p align="center"> $\color{#888660}{𝑒xtremely}$  ㅤ
-  $\color{#374443}{᥉loω}$ㅤ ㅤat ㅤㅤtimesㅤㅤ $\color{#716b57}{:}$ ㅤ ㅤᑲe ㅤ patient withㅤ  me ㅤㅤ! ㅤㅤ $\color{#D1D676}{≽(•⩊ •マ≼}$ 
-
-<p align="center"> 𝚑u𝚐eㅤ ㅤ⍴urs͟u͟e͟r͟ㅤ ㅤ&  ㅤㅤ $\color{#D1D676}{ᑲlot}$ ㅤ ㅤ kinnie  ㅤㅤㅤ  ⏖ 
+  $\color{#D1D676}{᥉loω}$ㅤ ㅤat ㅤㅤtimesㅤㅤ $\color{#716b57}{:}$ ㅤ ㅤᑲe ㅤ patient ㅤㅤwithㅤ  me ㅤㅤ! ㅤㅤ $\color{#D1D676}{≽(•⩊ •マ≼}$ 
+ ㅤ
+ <p align="center"> 𝚑u𝚐e ㅤ $\color{#4f5a5d}{⍴ursuer}$ ㅤㅤ&  ㅤㅤ $\color{#D1D676}{ᑲlot}$ ㅤ ㅤ kinnie  ㅤㅤㅤ  ⏖ 
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"> <img src="https://64.media.tumblr.com/8b25aa0fa38dd1a9ba8ee3500326e1da/4b7ff5f547f3d60e-0d/s100x200/1ffb31afd6a25c21b3a86a31e82947e0cbf32b28.png" alt="image"/> 
@@ -33,7 +33,8 @@
 <p align="center"> 
 
 
-$\color{#374443}{≽(•⩊ •マ≼}$    $\color{#716b57}{≽(•⩊ •マ≼}$     $\color{#4f5a5d}{≽(•⩊ •マ≼}$ 
+$\color{#374443}{≽(•⩊ •マ≼}$    $\color{#716b57}{≽(•⩊ •マ≼}$     $\color{#4f5a5d}{≽(•⩊ •マ≼}$ $\color{#4f5a5d}{⍴ursuer}$ 
+ 
   
  
 
